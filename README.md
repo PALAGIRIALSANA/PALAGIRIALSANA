@@ -14,7 +14,7 @@
 
 - 💬 Ask me about **Data structure**.
 
-- 📫 How to reach me **gallayaswanth4@gmail.com**.
+- 📫 How to reach me **alsanapalagiri1011@gmail.com**.
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
